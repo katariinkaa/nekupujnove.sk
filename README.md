@@ -1,0 +1,1 @@
+# nekupujnove.sk
